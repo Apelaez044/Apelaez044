@@ -6,6 +6,6 @@
 - ⚡ Fun fact **I like shooting games but I'm a noob 👾**
 
 <h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
+<a align="left">andersonpelaez@hotmail.com
+</a>
 
