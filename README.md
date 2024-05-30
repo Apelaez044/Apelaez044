@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **andersonpelaez@hotmail.com**
 
-- ⚡ Fun fact **I like shooting games but I'm a noob 👾**
+- ⚡ Fun fact, **I like shooting games but I'm a noob 👾**
 
 
 
